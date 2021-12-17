@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @jmulwa846
+- 👋 Hi, I’m Jonathan mulwa
 - 👀 I’m interested in  programming and software development
-- 🌱 I’m currently learning  business information technology
+- 🌱 I’m currently learning information technology
 - 💞️ I’m looking to collaborate on  learning and gaining knowledge on how to develop and become the best programmer...
 - 📫 How to reach me  can reach me through my Mobile number +254 769378360  or my Emails  jmulwa846@gmail.com or Microsoft email jonah27@mylife.mku.ac.ke
 
